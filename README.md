@@ -7,3 +7,4 @@ You will need Flash Player which you can get through our discord in the #informa
 Open the file with Flash Player and Enjoy!
 
 READ THE LICENCE BEFORE PLAYING!
+This is not in the Licence but im adding it, You cannot put this file anywhere without my permission please ask me first.
