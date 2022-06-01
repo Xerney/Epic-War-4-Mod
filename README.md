@@ -8,4 +8,11 @@ Open the file with Flash Player and Enjoy!
 
 READ THE LICENCE BEFORE PLAYING!
 
+Sponsor Perks:
 
+- Be in the Sponsors page of the wiki for all mods
+- Get a Sponsor badge on your profile
+- Name goes in my project README
+- I will friend you on Discord
+- Access to early access builds of my projects
+- Have your bug reports prioritized
