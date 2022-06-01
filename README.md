@@ -9,6 +9,7 @@ Open the file with Flash Player and Enjoy!
 READ THE LICENCE BEFORE PLAYING!
 
 Sponsors Perks
+
 1-3$
 - Be in the Sponsors page of the wiki for all mods
 - Get a Sponsor badge on your profile
