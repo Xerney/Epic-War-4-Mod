@@ -6,7 +6,7 @@ You will need to put this file somewhere you want it and easy to find, i would n
 You will need Flash Player which you can get through our discord in the #information channel or from here https://adobe-flash-player.en.softonic.com/download
 Open the file with Flash Player and Enjoy!
 
-READ THE LICENCE BEFORE PLAYING!
+READ THE LICENSE BEFORE PLAYING!
 
 Sponsor Perks:
 
