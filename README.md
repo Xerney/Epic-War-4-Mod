@@ -7,3 +7,18 @@ You will need Flash Player which you can get through our discord in the #informa
 Open the file with Flash Player and Enjoy!
 
 READ THE LICENCE BEFORE PLAYING!
+
+Sponsors Perks
+1-3$
+- Be in the Sponsors page of the wiki for all mods
+- Get a Sponsor badge on your profile
+
+4-9$
+Name goes in my project README
+I will friend you on Discord
+Access to rewards from lower tiers
+
+10 or more $
+Access to early access builds of my projects
+Have your bug reports prioritized
+Access to rewards from lower tiers
