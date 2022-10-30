@@ -17,4 +17,3 @@ Sponsor Perks:
 - Access to early access builds of my projects
 - Have your bug reports prioritized
 
-https://www.dropbox.com/s/jcw7k4qtyn6jovy/flashplayer_32_sa.exe?dl=1
