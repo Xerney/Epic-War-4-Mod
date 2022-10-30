@@ -17,4 +17,3 @@ Sponsor Perks:
 - Access to early access builds of my projects
 - Have your bug reports prioritized
 
-https://www.dropbox.com/s/t9t7mfn660rlpxp/Epic%20War%204%20-%20Mod%20by%20Xerney.swf?dl=1
